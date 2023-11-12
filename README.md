@@ -3,6 +3,7 @@
 Objectives and Key Questions
 
 Objectives-
+
 To identify states with Mass shootings and recognize when and where police presence needs to be at a heightened state.
 
 Key Questions-
